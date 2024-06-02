@@ -1,1 +1,2 @@
-Unionizing is my discord.
+pfp is calamus from oneshot
+unionizing on discord
